@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with vip Polymarket Module | trade-sniping + market-making, the #1 module. Includes trade-sniping and market-making for a smoother and more
 
 
 
